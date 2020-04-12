@@ -1,4 +1,4 @@
-# Thai Red Chicken Curry
+# Thai Red Curry Chicken
 
 * Serves: 2
 * Prep Time: 1 hour
