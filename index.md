@@ -14,3 +14,4 @@
 
 * [Things I want to try](to_try.html)
 
+* [External Recipes](external_recipes.html)
