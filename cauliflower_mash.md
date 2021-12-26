@@ -1,7 +1,7 @@
 # Cauliflower Mash
 
 * Serves: 6
-* Prep Time: 1 hour
+* Prep Time: 20 minutes
 * Cook Time: 40 minutes
 
 ## Ingredients
