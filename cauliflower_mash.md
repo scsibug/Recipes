@@ -7,10 +7,10 @@
 ## Ingredients
 
 * 1 large head of cauliflower
-* 8 oz. cheddar cheese
 * 8 oz. sour cream
 * 4 Tbsp butter
 * 6 oz. bacon
+* 8 oz. cheddar cheese
 * 3 stalks of green onion
 
 ## Instructions
@@ -19,7 +19,7 @@ Cut bacon into small pieces and cook until crispy.
 
 Cut cauliflower into small florets, and steam.
 
-Add cauliflower, butter, source cream, bacon, and most of the cheese
+Add cauliflower, butter, sour cream, bacon, and most of the cheese
 into a mixing bowl, and stir with a fork until melted and well mixed.
 Hold back enough cheese for topping.
 
