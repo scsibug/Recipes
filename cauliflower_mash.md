@@ -19,8 +19,9 @@ Cut bacon into small pieces and cook until crispy.
 
 Cut cauliflower into small florets, and steam.
 
-Add all incredients into a mixing bowl, and stir with a fork until
-melted and well mixed.  Hold back 2 oz. of cheese for topping.
+Add cauliflower, butter, source cream, bacon, and most of the cheese
+into a mixing bowl, and stir with a fork until melted and well mixed.
+Hold back enough cheese for topping.
 
 Season with salt, pepper, and garlic powder to taste.
 
