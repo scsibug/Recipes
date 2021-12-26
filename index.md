@@ -3,10 +3,7 @@
 ## Meals
 
 * [Thai Red Curry Chicken](thai_red_curry_chicken.html)
-
-## Wing Marinades
-
-## Desserts
+* [Cauliflower Mash](cauliflower_mash.html)
 
 ----
 
