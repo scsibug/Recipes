@@ -11,6 +11,7 @@
 * 8 oz. sour cream
 * 4 Tbsp butter
 * 6 oz. bacon
+* 3 stalks of green onion
 
 ## Instructions
 
@@ -21,6 +22,10 @@ Cut cauliflower into small florets, and steam.
 Add all incredients into a mixing bowl, and stir with a fork until
 melted and well mixed.  Hold back 2 oz. of cheese for topping.
 
+Season with salt, pepper, and garlic powder to taste.
+
 Pour into caserole dish, and top with the remaining cheese.  Cover and
 bake at 350 F for approximates 30 minutes.  Uncover and broil until
 the cheese is browned.
+
+Top with sliced green onions.
