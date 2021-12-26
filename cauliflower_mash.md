@@ -26,7 +26,7 @@ Hold back enough cheese for topping.
 Season with salt, pepper, and garlic powder to taste.
 
 Pour into caserole dish, and top with the remaining cheese.  Cover and
-bake at 350 F for approximates 30 minutes.  Uncover and broil until
+bake at 350 F for approximately 30 minutes.  Uncover and broil until
 the cheese is browned.
 
 Top with sliced green onions.
